@@ -1,2 +1,0 @@
-# Bighero6_test
- 
